@@ -177,5 +177,53 @@ __Conflux Festival__. _The change you want to see_ .Brooklin, Estados Unidos
 
 __Transmisiones__. _XII Salones regionales de Artistas_. Bogotá/Boyaca, Colombia
 
+## Curadurías
+`2018`
+__Articularte__. _Feria Internacional de Arte de Bogotá - ARTBO_. Bogotá, Colombia
+
+`2017`
+__Articularte__. _Feria Internacional de Arte de Bogotá - ARTBO_. Bogotá, Colombia
+
+
+## Premios y galardones
+`2018`
+__Nominado X Premio Luis Caballero__. Bogotá, Colombia
+
+`2016`
+__Premio IV Bienal Fundación Gilberto Alzate Avendaño__. Bogotá, Colombia
+
+`2015`
+__Beca FASE 7.0 Arte, Ciencia y Tecnología}{Cinemateca Distrital}{Colombia}{}{}{}
+
+`2014`
+__Beca de circulación nacional e internacional para artistas y agentes de las artes visuales__. _Ministerio de Cultura_.  Colombia
+
+`2013`
+__Beca de movilidad nacional e internacional en artes plásticas y visuales__. _IDARTES_. Bogotá, Colombia
+
+`2012`
+__Beca de circulación nacional e internacional para artistas y agentes de las artes visuales__. _Ministerio de Cultura_. Colombia
+`2009`
+__Mención. Bienal ASAB, altas, medias y bajas tecnologías__. _Escuela Superior de artes de Bogotá_. Bogotá, Colombia
+
+
+## Residencias
+`2017`
+__Puerto Contemporáneo__. Cartagena, Colombia
+`2010`
+__Interactivos?BH 2010__. _Marginalialab_. Belo Horizonte, Brazil
+
+__Programa de residencias internacionales__. _JA.CA – Jardim Canada Centro de Arte_. Belo Horizonte, Brasil
+
+`2007`
+__Residencia en el Encuentro MDE 07__. Medelliín, Colombia
+
+
+## Colecciones
+
+* __Banco de la República de Colombia__. Bogotá, Colombia
+* __Fundación Gilberto Alzate Avendaño__. Bogotá, Colombia
+
+
 
 
