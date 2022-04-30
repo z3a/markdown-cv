@@ -21,6 +21,7 @@ __Maestro en artes plásticas con enfasis en arte y nuevas tecnologías__. _Univ
 ## Exposiciones individuales
 `2022`
 __HH:MM:SS__. _Librería Errata_. Bogotá, Colombia
+__9 a 5__. _Atendido por sus propietarios_. Bogotá, Colombia
 
 `2019`
 __Monumento al tornillo desconocido. X Premio Luis Caballero__. _Monumento a los Héroes_. Bogotá, Colombia
